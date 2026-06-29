@@ -1,4 +1,4 @@
-# 
+# Elite Affinity Designer predefinições para Mac OS | Gratuito Affinity Designer predefinições para PC Windows. Com operações de caminho e colaboração em tempo real — otimizado para máximo desempenho em cada plataforma.
 
 
 
